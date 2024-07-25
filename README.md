@@ -1,2 +1,0 @@
-*loading. . .*
-— intro in progress!
