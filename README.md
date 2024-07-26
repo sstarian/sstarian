@@ -10,7 +10,7 @@
 
   <p align="center">
   </br></br>
-  <b>DORIAN</B>ㅤㅤㅤ.ㅤㅤ<i>KAMI</i>ㅤㅤㅤ.ㅤㅤAUGUSTㅤㅤㅤㅤ— , ` ask prns! fluctuating
+  <b>DORIAN</B>ㅤㅤㅤ.ㅤㅤ<i>KAMI</i>ㅤㅤㅤ.ㅤㅤCALYPSOㅤㅤㅤㅤ— , ` ask prns! fluctuating
   </p>
 <p align="right">
 <code style="color : grey"> ↑ name changes/varies as well ┆彡ㅤㅤ</code>
@@ -26,4 +26,4 @@
 
 ---
 
-┊ ⋆ ┊ . ┊ ┊ where to find kami!!ㅤㅤ[pronouns](https://pronouns.page/@sugurus) . [spacehey](https://spacehey.com/kenkojii) . [rentry](https://rentry.co/sugetos) ㅤ🕷ㅤ kamisleeps on discord
+┊ ⋆ ┊ . ┊ ┊ where to find caly!!ㅤㅤ[pronouns](https://pronouns.page/@sugurus) . [spacehey](https://spacehey.com/kenkojii) . [rentry](https://rentry.co/sugetos) ㅤ🕷ㅤ kamisleeps on discord
