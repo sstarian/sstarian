@@ -3,7 +3,7 @@
 </div>
 <br/><br/>
 <p align="center">
-  <font size="10">loading. . . complete!</font>
+  <i>loading. . . complete!</i>
   </br></br> </p>
   
   ---
