@@ -26,4 +26,4 @@
 
 ---
 
-┊ ⋆ ┊ . ┊ ┊ where to find caly!!ㅤㅤ[pronouns](https://pronouns.page/@c4ly) . [spacehey](https://spacehey.com/kenkojii) . [rentry](https://rentry.co/sugetos) ㅤ🕷ㅤ calyshifts on discord
+┊ ⋆ ┊ . ┊ ┊ where to find caly!!ㅤㅤ[pronouns](https://pronouns.page/@c4ly) . [spacehey](https://spacehey.com/kenkojii) . [rentry](https://rentry.co/sugetos) ㅤㅤ🕷ㅤㅤ ask for discord
