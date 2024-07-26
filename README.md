@@ -3,5 +3,5 @@
 </div>
 <br/><br/><br/>
 <p align="center">
-  <font size="10">loading complete</font><br>
+  <font size="10">loading. . . please hold!</font><br>
   </p>
