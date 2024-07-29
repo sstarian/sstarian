@@ -10,7 +10,7 @@
 
   <p align="center">
   </br></br>
-  <b>RODY</B>ㅤㅤㅤ.ㅤㅤ<i>KAMI</iㅤㅤㅤㅤ— , ` ask prns! fluctuating
+  <b>RODY</B>ㅤㅤㅤ.ㅤㅤㅤ<i>KAMI</iㅤㅤㅤ.ㅤㅤㅤSALㅤㅤㅤㅤ— , ` ask prns! fluctuating
   </p>
 <p align="right">
 <code style="color : grey"> ↑ name changes/varies as well ┆彡ㅤㅤ</code>
@@ -26,4 +26,4 @@
 
 ---
 
-┊ ⋆ ┊ . ┊ ┊ where to find caly!!ㅤㅤ[pronouns](https://pronouns.page/@c4ly) . [spacehey](https://spacehey.com/kenkojii) . [rentry](https://rentry.co/sugetos) ㅤㅤ🕷ㅤㅤ ask for discord
+┊ ⋆ ┊ . ┊ ┊ where to find rody!!ㅤㅤ[pronouns](https://pronouns.page/@c4ly) . [spacehey](https://spacehey.com/kenkojii) . [rentry](https://rentry.co/sugetos) ㅤㅤ🕷ㅤㅤ ask for discord
