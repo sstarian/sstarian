@@ -10,7 +10,7 @@
 
   <p align="center">
   </br></br>
-  <b>RODY</B>ㅤㅤㅤ.ㅤㅤㅤ<i>KAMI</iㅤㅤㅤ.ㅤㅤㅤSALㅤㅤㅤㅤ— , ` ask prns! fluctuating
+  <b>RODY</B>ㅤㅤㅤ.ㅤㅤㅤ<i>KAMI</iㅤㅤㅤ.ㅤㅤㅤ SALㅤㅤ— , ` ask prns! fluctuating
   </p>
 <p align="right">
 <code style="color : grey"> ↑ name changes/varies as well ┆彡ㅤㅤ</code>
