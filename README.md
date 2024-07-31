@@ -34,7 +34,7 @@ people who self diagnose (idgaf, u are WEIRD!!! dni)
 <p align="right">
 BYI :  ㅤㅤㅤㅤㅤ ㅤ    
 </br>
-easily irritated, but other then that mostly chill </br>
+easily given the ick, but other then that mostly chill </br>
 often faces switches in personality and identity (no clue wtf it is, so pls be patient w it) </br>
 loves rair pairs, or what may be considered weird ships (u don't have to int of u don't like that) </br>
 EXTREMELY apathetic and uncaring, may be considered problematic or morally indifferent (again, u don't have to int of u don't like that)
