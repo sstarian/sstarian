@@ -28,7 +28,7 @@
 chronically online people (i cannot stand u, u will be blocked w/o a second thought) </br>
 typing quirks (hard to read and annoying) </br> 
 if u give me the ick (self explanitory, don't be weird) </br>
-u hate on LEGAL ships (lets not compare age gap ships to minorxadult, thanks!) </br>
+u hate on LEGAL ships (age gap, rare pairs, etc) </br>
 people who self diagnose (idgaf, u are WEIRD!!! dni)
 </br>
 <p align="right">
