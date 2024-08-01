@@ -36,7 +36,7 @@ BYI :  ㅤㅤㅤㅤㅤ ㅤ
 </br>
 easily given the ick, but other then that mostly chill </br>
 often switches in personality and identity (no clue wtf it is, so pls be patient w it) </br>
-loves rair pairs, or "weird ships" (u don't have to int of u don't like that) </br>
+loves rair pairs, or "weird" ships (u don't have to int of u don't like that) </br>
 EXTREMELY apathetic and uncaring, may be considered problematic (again, u don't have to int of u don't like that)
 </p>
 </br></br>
