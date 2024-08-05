@@ -27,7 +27,6 @@
 </br>
 chronically online people (i cannot stand u, u will be blocked w/o a second thought) </br>
 typing quirks (hard to read and annoying) </br> 
-if u give me the ick (self explanitory, don't be weird) </br>
 u hate on LEGAL ships (age gap, rare pairs, etc) </br>
 people who self diagnose (idgaf, u are WEIRD!!! dni)
 </br>
@@ -37,7 +36,7 @@ BYI :  ㅤㅤㅤㅤㅤ ㅤ
 easily given the ick, but other then that mostly chill </br>
 often switches in personality and identity (no clue wtf it is, so pls be patient w it) </br>
 loves rair pairs, or "weird" ships (u don't have to int of u don't like that) </br>
-EXTREMELY apathetic and uncaring, may be considered problematic (again, u don't have to int of u don't like that)
+EXTREMELY apathetic and uncaring, may be considered problematic (again, u don't have to int)
 </p>
 </br></br>
 
